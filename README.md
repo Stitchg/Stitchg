@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Stitchg
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning 10th-grade English, math, history, etc...
+- 🌱 I’m currently learning 12th-grade English, math, history, etc...
 - 💞️ I’m looking to collaborate on assignments
 - 📫 How to reach me email or phone
 - 😄 Pronouns: He, Him
